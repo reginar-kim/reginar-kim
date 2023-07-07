@@ -9,7 +9,7 @@
 I'm a passionate career switcher who transitioned from a background in customer experience operations and project management to software engineering.
 
 - 💅🏾 She/Her
-- 💻 Currently working on refining projects completed during my time in coding bootcamp and completing solo projects.
+- 💻 More projects underway
 - 🤓 Never not learning.
 - 🐶 Loves dogs a little too much (but what's wrong with that?)
 - 📧 Connect and say Hi!
