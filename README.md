@@ -10,7 +10,7 @@ I'm a passionate career switcher who transitioned from a background in customer 
 
 - 💅🏾 She/Her
 - 💻 More projects underway
-- 🤓 Never not learning.
+- 🤓 Never not learning
 - 🐶 Loves dogs a little too much (but what's wrong with that?)
 - 📧 Connect and say Hi!
 
